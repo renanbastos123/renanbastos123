@@ -1,2 +1,2 @@
 ## Hi there 👋
-Meu nome é Renan BASTOS
+Meu nome é Renan Bastos
